@@ -1,0 +1,1 @@
+# QSS80IndStudy
